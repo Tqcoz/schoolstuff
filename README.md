@@ -1,6 +1,6 @@
 <h1> Welcome to 302. </h1>
 
-Here, we strive to make easy things hard.
+Here, we strive to make hard things easier for us to take in.
 
 We are commited to do our best and have 100% on everything we touch.
 
