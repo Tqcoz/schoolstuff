@@ -11,3 +11,5 @@ Here, we attempt to be the geniuses of our school. We seek to be smarter than ev
 Give us something to do and we will put all our heart towards it.
 
 <h3> THIS IS US </h3>
+***
+<h6> Made by that kid in wendy's who likes coding and tries to get straight As</h6>
