@@ -8,7 +8,7 @@ We do things right here, unlike other classes (and schools). We aren't just a cl
 
 Here, we attempt to be the geniuses of our school. We seek to be smarter than even the 8th graders!
 
-Give us something to do and we will put all our **heart towards it. 💙
+Give us something to do and we will put all our **heart towards it.** 💙
 
 <h3> THIS IS US </h3>
 ***
